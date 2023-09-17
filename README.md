@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Hruthik Kumar
 - 👀 I’m interested in ...Cyber Security
-- 🌱 I’m currently learning ...BTech-Computer Science And Engineering
+- 🌱 I’m a BTech-Computer Science And Engineering Graduate
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...Telegram=@hruthikkumar7
 
